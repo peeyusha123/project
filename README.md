@@ -16,7 +16,6 @@ Kedarnath temple is a major tourist attraction and pilgrims book their hotels wa
 Kedarnath is a strictly vegetarian place and consumption of alcohol is prohibited here. There are few restaurants or dhabas, on the way leading up to the holy temple, which are open from 4 am to midnight and serve basic Indian food. It is advisable to eat cooked food or boiled vegetables for keeping a track of your health.
 * BEST TIME TO VISIT KEDARNATH
 The average minimum and maximum temperature of Kedarnath is as given below. The best time to visit Kedarnath is also specified.
-
 2.Badrinath-
-![badrinath-dham1](https://user-images.githubusercontent.com/118448636/203006720-21319be8-5b11-41d9-af8c-29b0c85a9d33.jpg)
+..![badrinath-dham1](https://user-images.githubusercontent.com/118448636/203006720-21319be8-5b11-41d9-af8c-29b0c85a9d33.jpg)
 The Badrinath temple is the main attraction in the town. According to legend, Adi Shankaracharya discovered a black stone image of Lord Badrinarayan made of Shaligram stone in the Alaknanda River. He originally enshrined it in a cave near the Tapt Kund hot springs.[10][11] In the sixteenth century, the King of Garhwal moved the murti to the present temple.[10] The temple is approximately 50 ft (15 m) tall with a small cupola on top, covered with a gold gilt roof.[10] The facade is built of stone, with arched windows. A broad stairway leads up to a tall arched gateway, which is the main entrance. The architecture resembles a Buddhist vihara (temple), with the brightly painted facade also more typical of Buddhist temples.[12] Just inside is the mandapa, a large pillared hall that leads to the garbha grha, or main shrine area. The walls and pillars of the mandapa are covered with intricate carving.
